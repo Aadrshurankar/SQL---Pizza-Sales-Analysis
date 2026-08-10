@@ -664,7 +664,7 @@ https://github.com/Aadrshurankar
 https://www.linkedin.com/in/aadrsh-urankar777/
 
 **Email:**  
-aadrshurankar@gmail.com
+aadrshurankar40@gmail.com
 
 ---
 
